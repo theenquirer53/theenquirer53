@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @theenquirer53
-- 👀 I’m interested in depraved illegal porn.
-- 🌱 I’m currently learning how to groom.
-- 💞️ I’m looking to collaborate on anything dark...
+- 👀 I’m interested in
+- 🌱 I’m currently 
+- 💞️ I’m looking to 
 - 📫 How to reach me here.
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
